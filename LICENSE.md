@@ -1,4 +1,4 @@
-# 
+# VIP leverage trading bot modèles pour Mac OS | Automatique leverage trading bot modèles pour PC Windows. Avec pools de liquidité DEX et traitement par lots — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
